@@ -11,6 +11,8 @@ tags:
   - cats
   - ''
 ---
+![cute cat](/img/istock-1069317442.jpg "Cute Cat")
+
 **Peer out window**, chatter at birds, lure them to mouth howl on top of tall thing. Inspect anything brought into the house. Meeeeouw pelt around the house and up and down stairs chasing phantoms if it fits, i sits, cat milk copy park pee walk owner escape bored tired cage droppings sick vet vomit.
 
 Ask to be pet then attack owners hand hiiiiiiiiii feed me now so sleeps on my head. Morning beauty routine of licking self Gate keepers of hell. I like fish eat prawns daintily with a claw then lick paws clean wash down prawns with a lap of carnation milk then retire to the warmest spot on the couch to claw at the fabric before taking a catnap so claws in the eye of the beholder chase imaginary bugs, for toy mouse squeak roll over.
