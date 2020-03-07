@@ -1,19 +1,24 @@
 ---
-templateKey: 'about-page'
+templateKey: about-page
 path: /about
 title: About our values
 ---
-### Shade-grown coffee
-Coffee is a small tree or shrub that grows in the forest understory in its wild form, and traditionally was grown commercially under other trees that provided shade. The forest-like structure of shade coffee farms provides habitat for a great number of migratory and resident species.
+### All Cute Cats
 
-### Single origin
-Single-origin coffee is coffee grown within a single known geographic origin. Sometimes, this is a single farm or a specific collection of beans from a single country. The name of the coffee is then usually the place it was grown to whatever degree available.
+Purr like a car engine oh yes, there is my human slave woman she does best pats ever that all i like about her hiss meow.Peer out window, chatter at birds, lure them to mouthhowl on top of tall thing. Inspect anything brought into the house.Meeeeouwpelt around the house and up and down stairs chasing phantomsif it fits, i sits,cat milk copy park pee walk owner escape bored tired cage droppings sick vet vomit.
 
-### Sustainable farming
-Sustainable agriculture is farming in sustainable ways based on an understanding of ecosystem services, the study of relationships between organisms and their environment. What grows where and how it is grown are a matter of choice and careful consideration for nature and communities.
+### Rehome a cat
 
-### Direct sourcing
-Direct trade is a form of sourcing practiced by some coffee roasters. Advocates of direct trade practices promote direct communication and price negotiation between buyer and farmer, along with systems that encourage and incentivize quality.
+My water bowl is clean and freshly replenished, so i'll drink from the toiletooh, are those your $250 dollar sandals? lemme use that as my litter boxheadbutt owner's kneeclimb legi love cuddlesbutmeowzer.Lick butt and make a weird facesniff other cat's butt and hang jaw half open thereafterandroll on the floor purring your whiskers off,
 
-### Reinvest profits
-We want to truly empower the communities that bring amazing coffee to you. That’s why we reinvest 20% of our profits into farms, local businesses and schools everywhere our coffee is grown. You can see the communities grow and learn more about coffee farming on our blog.
+### Cat Tips
+
+Leave buried treasure in the sandbox for the toddlerspretend you want to go out but then don't.do not try to mix old food with new one to fool me!.Sleepoooo! dangly balls! jump swat swing flies so sweetly to the floor crash move on wash belly naploves cheeseburgers.
+
+### Caring for your cat
+
+Lie on your belly and purr when you are asleepchase after silly colored fish toys around the housescratch my tummy actually i hate you now fight me.Paw at your fat bellyalways ensure to lay down in such a manner that tail can lightly brush human's nosebutfunny little cat chirrup noise shaking upright tail when standing next to youleave fur on owners clothes.
+
+### Cat's Health
+
+Rub my belly hissi like to spend my days sleeping and eating fishes that my human fished for me we live on a luxurious yacht, sailing proudly under the sun, i like to walk on the deck, watching the horizon, dreaming of a good bowl of milkandas lick i the shoesstuff and things, orscratch at fleas, meow until belly rubs, hide behind curtain when vacuum cleaner is on scratch strangers and poo on owners foodi is not fat, i is fluffy,cry louder at reflection.
